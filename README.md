@@ -1,1 +1,0 @@
-# japrad.github.io
